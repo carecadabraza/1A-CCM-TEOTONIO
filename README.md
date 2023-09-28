@@ -4,4 +4,3 @@
 - mente fria pouca midia
 - profissional em tenis de mesa
 - sou flamenguista
-- 
